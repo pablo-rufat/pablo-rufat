@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [resume](https://resume.io/r/zJ7EmAuau)
 
-- ⚡ Fun fact **I'm living in brazil for 6 years now!**
+- ⚡ Fun fact **I lived in brazil for 6 years!** and now I'm back in Spain.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
